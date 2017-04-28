@@ -1,3 +1,0 @@
-CHANSIN Jérémy  
-BOMPARD Clément 
-ESILV 3A IF 2 
